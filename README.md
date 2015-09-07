@@ -1,0 +1,1 @@
+pasyensya na ha?
